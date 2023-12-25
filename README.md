@@ -25,9 +25,13 @@ In addition to his professional pursuits, Zahidul remains a passionate explorer 
 
 # External Links
 
-([Facebook](https://www.facebook.com/zahidulislammahim26))
-([Facebook Page](https://www.facebook.com/zahidulislammahim2626))
-([Instagram](https://www.instagram.com/zahidul_islam_mahim_26/))
-([Twitter](https://twitter.com/zahidulislam_26))
+[Facebook](https://www.facebook.com/zahidulislammahim26)
+
+[Facebook Page](https://www.facebook.com/zahidulislammahim2626)
+
+[Instagram](https://www.instagram.com/zahidul_islam_mahim_26/)
+
+[Twitter](https://twitter.com/zahidulislam_26)
+
 
 Zahidul Islam Mahim is a dedicated individual with a passion for technology, a creative mind, and a commitment to contributing to the ever-evolving digital landscape. His career and personal interests reflect his unwavering pursuit of knowledge and innovation in the world of technology.
