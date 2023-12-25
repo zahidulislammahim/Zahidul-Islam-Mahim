@@ -1,4 +1,6 @@
 # Zahidul Islam Mahim
+![Zahidul](https://github.com/zahidulislammahim/Zahidul-Islam-Mahim/assets/92626624/2d2cb2d3-8865-4c3d-b4d8-7372655693a6)
+
 Zahidul Islam Mahim is a Computer Engineering student and digital creator known for his passion for technology and innovation. Born on November 28, 2023, in Noakhali, Bangladesh, he has dedicated himself to the fields of computer engineering, web development, and fiber optics technology.
 
 # Education and Early Life
